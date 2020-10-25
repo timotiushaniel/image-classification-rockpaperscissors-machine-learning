@@ -8,7 +8,7 @@ Original file is located at
 
 Nama: Timotius Haniel
 
-Username Dicoding: Timotius Haniel
+Username Dicoding: https://www.dicoding.com/users/timotiushaniel186
 
 Domisili Asal: Bandung, Jawa Barat
 
